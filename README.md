@@ -118,12 +118,10 @@ New Y
 ![image](https://github.com/user-attachments/assets/957b28dd-252c-47d5-9035-cf84d3acd8a7)
 
 
-![image](https://github.com/user-attachments/assets/e168da79-5468-4aa0-88a8-4a77db5c40dd)
 
 ![image](https://github.com/user-attachments/assets/50cad648-f99f-489b-907b-bb0c1557e3de)
 
 
-![image](https://github.com/user-attachments/assets/75f32047-e1cc-40a8-a3d7-c4f878ca6a1a)
 
 ![image](https://github.com/user-attachments/assets/99e5cae1-9e5c-4035-8f91-bf3959e25cc0)
 
